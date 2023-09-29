@@ -1,2 +1,2 @@
 # repo_pract_2
- practise 2 
+ practising my repo cos I have no clue on this
